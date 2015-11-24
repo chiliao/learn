@@ -4,5 +4,4 @@ i'm god
 ghost
 just do!
 who cares
-new
-hehe
+i care!
